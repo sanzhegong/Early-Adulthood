@@ -87,62 +87,62 @@
 
 ​ 我没有听清他接下去说了什么。音乐已经跳到了石玫瑰的Waterfall[^15]，我跟着节拍唱了出来。山风瞬即把我的歌声撕碎，丢到车轮后去。
 
-​ `Chimes sing Sunday morn`
-​ `钟声唱响周日的清晨`
-​ `Today's the day she's sworn`
-​ `今天是她宣誓的日子`
-​ `To steal what she never could own`
-​ `为了偷窃她不曾拥有的东西`
-​ `And race from this hole she calls home`
-​ `从这个被她叫作“家”的洞穴逃窜出来`
-​ `Now you're at the wheel`
-​ `现在你驱车飞奔前行`
-​ `Tell me how, how does it feel?`
-​ `告诉我如何 这滋味如何呀`
-​ `So good to have equalised`
-​ `能和他们打个平手你真是好样的`
-​ `To lift up the lids of your eyes`
-​ `抬起你的眼睑`
-​ `As the mile they disappear`
-​ `当他们消失在一英里之外`
-​ `See land begin to clear`
-​ `眼见陆地愈加清晰开阔`
-​ `Free from the filth and the scum`
-​ `从这些污秽渣滓中脱身出来`
-​ `This American satelites won`
-​ `这个美国定位卫星似乎略胜一筹`
-​ `She'll carry on through it all`
-​ `她会完全逃脱它的追踪`
-​ `She's a waterfall`
-​ `她就是顺流直下的瀑布`
-​ `She'll carry on through it all`
-​ `她会完全逃脱它的追踪`
-​ `She's a waterfall`
-​ `她就是顺流直下的瀑布`
-​ `See the steeple pine`
-​ `看看那棵尖塔松树`
-​ `The hills as old as time`
-​ `如时间般沧桑的群山`
-​ `Soon to be put to the test`
-​ `很快就要接受检验啦`
-​ `To be whipped by the winds of the west`
-​ `遭到西风的阵阵抽打`
-​ `Stands on shifting sands`
-​ `矗立在流沙之上`
-​ `The scales held in her hands`
-​ `这些场景都掌握在她手中`
-​ `The wind it just whips her away`
-​ `风只是为了将她击飞`
-​ `And fills up her brigantine sails`
-​ `吹胀她双桅船的白帆`
-​ `She'll carry on through it all`
-​ `她会完全逃脱它的追踪`
-​ `She's a waterfall`
-​ `她就是顺流直下的瀑布`
-​ `She'll carry on through it all`
-​ `她会完全逃脱它的追踪`
-​ `She's a waterfall`
-​ `她就是顺流直下的瀑布`
+​ `Chimes sing Sunday morn`  
+​ `钟声唱响周日的清晨`  
+​ `Today's the day she's sworn`  
+​ `今天是她宣誓的日子`  
+​ `To steal what she never could own`  
+​ `为了偷窃她不曾拥有的东西`  
+​ `And race from this hole she calls home`  
+​ `从这个被她叫作“家”的洞穴逃窜出来`  
+​ `Now you're at the wheel`  
+​ `现在你驱车飞奔前行`  
+​ `Tell me how, how does it feel?`  
+​ `告诉我如何 这滋味如何呀`  
+​ `So good to have equalised`  
+​ `能和他们打个平手你真是好样的`  
+​ `To lift up the lids of your eyes`  
+​ `抬起你的眼睑`  
+​ `As the mile they disappear`  
+​ `当他们消失在一英里之外`  
+​ `See land begin to clear`  
+​ `眼见陆地愈加清晰开阔`  
+​ `Free from the filth and the scum`  
+​ `从这些污秽渣滓中脱身出来`  
+​ `This American satelites won`  
+​ `这个美国定位卫星似乎略胜一筹`  
+​ `She'll carry on through it all`  
+​ `她会完全逃脱它的追踪`  
+​ `She's a waterfall`  
+​ `她就是顺流直下的瀑布`  
+​ `She'll carry on through it all`  
+​ `她会完全逃脱它的追踪`  
+​ `She's a waterfall`  
+​ `她就是顺流直下的瀑布`  
+​ `See the steeple pine`  
+​ `看看那棵尖塔松树`  
+​ `The hills as old as time`  
+​ `如时间般沧桑的群山`  
+​ `Soon to be put to the test`  
+​ `很快就要接受检验啦`  
+​ `To be whipped by the winds of the west`  
+​ `遭到西风的阵阵抽打`  
+​ `Stands on shifting sands`  
+​ `矗立在流沙之上`  
+​ `The scales held in her hands`  
+​ `这些场景都掌握在她手中`  
+​ `The wind it just whips her away`  
+​ `风只是为了将她击飞`  
+​ `And fills up her brigantine sails`  
+​ `吹胀她双桅船的白帆`  
+​ `She'll carry on through it all`  
+​ `她会完全逃脱它的追踪`  
+​ `She's a waterfall`  
+​ `她就是顺流直下的瀑布`  
+​ `She'll carry on through it all`  
+​ `她会完全逃脱它的追踪`  
+​ `She's a waterfall`  
+​ `她就是顺流直下的瀑布`  
 
 ​ 除了我和阿杰这样不自量力去当铅酸电池的混蛋，自然也有留在破烂水坑呼吸的家伙。自从踏进社会起，Hale就没有离开那座破落小城。他先是去当了三年的汽修学徒，等熬过了三年，终于洗净了十只黑乎乎的手指，然后电动汽车开始兴起了。“他妈的，现在电动车都不用换机油了。” 他的两只擦洗得都是褶皱的手交叉叠在胸前，和我们说到。可能是电动车的缘故或者是他对此疲倦了，他转头去了工厂。三年修车的经验，现在只会在他捣鼓他的摩托车的时候会被用到。夕阳斜照的家门口前，他听着万能青年旅店[^16]的杀死那个石家庄人[^17]和十万嬉皮[^18]，绕着那辆仿赛摩托走来走去，检查下刹车、轮毂、轮胎什么的，或者思考着要不要更换下大灯。
 
@@ -152,25 +152,25 @@
 
 ​ 一个月后，他驾驶他的摩托车，和他的女朋友奔驰上百公里，去到了漳州的海边。他站在海滩上，目视着前方去踩水的女友，海风把他干枯略带灰色的头发吹得乱糟糟的，火红的太阳从他面前的波浪中诞生，温柔的早霞安抚着他和他那尾管发烫的摩托车。他的眼睛快被海风吹得睁不开来，听着五条人乐队[^23]的海风[^24]，他感慨万千。
 
-​ `你要跟我一起走吗`
-​ `有辆车在等我`
-​ `马上就要载我`
-​ `离开这个县城`
-​ `我想带你去外面逛逛啊`
-​ `看看这个世界究竟有多大`
-​ `你可别嫌我这辆车`
-​ `太过旧 太过破`
-​ `我们先到乌坎去逛一逛`
-​ `看看选举到底是圆的还是扁的`
-​ `看看这个国家，对它的影响究竟有多大`
-​ `如果可以的话我们就变成两只鸟儿`
-​ `最好不要太大只`
-​ `亲像麻雀那样 四处去玩 四处去耍`
-​ `海风哦 啦啦啦啦 海风哦 啦啦啦啦`
-​ `它喷到哪儿 哪儿就有人在唱歌`
-​ `海风哦 啦啦啦啦 海风哦 啦啦啦啦`
-​ `海风哦 海风哦 只要它在你的身边`
-​ `去到哪里都不惊`
+​ `你要跟我一起走吗`  
+​ `有辆车在等我`  
+​ `马上就要载我`  
+​ `离开这个县城`  
+​ `我想带你去外面逛逛啊`  
+​ `看看这个世界究竟有多大`  
+​ `你可别嫌我这辆车`  
+​ `太过旧 太过破`  
+​ `我们先到乌坎去逛一逛`  
+​ `看看选举到底是圆的还是扁的`  
+​ `看看这个国家，对它的影响究竟有多大`  
+​ `如果可以的话我们就变成两只鸟儿`  
+​ `最好不要太大只`  
+​ `亲像麻雀那样 四处去玩 四处去耍`  
+​ `海风哦 啦啦啦啦 海风哦 啦啦啦啦`  
+​ `它喷到哪儿 哪儿就有人在唱歌`  
+​ `海风哦 啦啦啦啦 海风哦 啦啦啦啦`  
+​ `海风哦 海风哦 只要它在你的身边`  
+​ `去到哪里都不惊`  
 ---
 
 ​ Hale当然也考虑过离开这个小城市，但最后决定留下。
@@ -284,62 +284,62 @@
 
 ​ 阿杰回家里待了半个月，又出发了。他说这次去苏州。Hale可以说是已经完全康复了，他换了工作，不用再日夜两班倒了，有更多的时间养他的鸽子了。他的鸽群已经发展到了二十多只了。他打算再做多两个鸽笼。我在家里待了一周，又一次行色匆匆地走了。临行的时候，包裹里自然又是塞满了各种家乡的东西，茶和特色的饼食糕点什么的，跟父母说了好几句再见什么的。傍晚时分，列车经过惠州的时候，我在昏昏欲睡的状态下猛地惊醒。窗外已经日落一半，我看向车厢内的时候，发现和我一样提着行李，昏昏欲睡的游子不在少数。我这才意识到，我已经离家五百里了。我想，阿杰这会不知道在干什么，会不会也在看落日？Hale的话，他应该骑着摩托车，在下班的路上吧。他可能已经快到家了，他的鸽子从他头上的天空滑翔而过。
 
-​ `If you missed the train I'm on`[^39]
-​ `若你错过了我搭乘的那班列车`
-​ `You will know that I am gone`
-​ `你应明白我已离开`
-​ `You can hear the whistle blow a hundred miles`
-​ `你听那绵延百里的汽笛`
-​ `A hundred miles, a hundred miles`
-​ `一百英里又一百英里 载我远去`
-​ `A hundred miles, A hundred miles`
-​ `一百英里又一百英里 再回不去`
-​ `You can hear the whistle blow A hundred miles`
-​ `那绵延百里的汽笛会告诉你我离去的讯息`
-​ `Lord, I'm one, Lord, I'm two, Lord`
-​ `上帝啊，一百英里 两百英里 渐渐远去`
-​ `I'm three, Lord, I'm four, Lord`
-​ `三百英里 上帝啊，四百英里 再回不去`
-​ `I'm five hundred miles away from home`
-​ `不知不觉我便已离家五百英里`
-​ `Away from home, away from home`
-​ `背负一切 离乡背井`
-​ `away from home, away from home`
-​ `家在远方 我却再难回去`
-​ `Lord, I'm five hundred miles away from home`
-​ `上帝啊 家乡离我已有五百英里`
-​ `Not a shirt on my back`
-​ `如今我衣衫褴褛`
-​ `Not a penny to my name`
-​ `依旧是一文不名`
-​ `Lord. I can't go back home this a-way`
-​ `上帝啊 我怎能就这样回到家去`
-​ `This a-way, this a-way`
-​ `这般潦倒 这般困顿`
-​ `This a-way, this a-way`
-​ `这般处境 惨惨戚戚`
-​ `Lord, I can't go back home this a-way`
-​ `这样的我又怎好意思回到家去`
-​ `If you missed the train I'm on`
-​ `若那列车开动让我来不及见你`
-​ `You will know that I am gone`
-​ `那就说明我已独自黯然离去`
-​ `You can hear the whistle blow A hundred miles`
-​ `你听那绵延百里的汽笛`
-​ `A hundred miles`
-​ `一百英里`
-​ `A hundred miles`
-​ `又一百英里 载我远去`
-​ `A hundred miles`
-​ `一百英里`
-​ `A hundred miles`
-​ `又一百英里 再回不去`
-​ `You can hear the whistle blow a hundred miles`
-​ `你听那绵延百里的汽笛 声渐远去`
-​ `You can hear the whistle blow a hundred miles`
-​ `告诉着你我已离乡背井 不见归期`
-​ `You can hear the whistle blow a hundred miles`
-​ `那绵延百里的汽笛 一如我的叹息`
+​ `If you missed the train I'm on`[^39]  
+​ `若你错过了我搭乘的那班列车`  
+​ `You will know that I am gone`  
+​ `你应明白我已离开`  
+​ `You can hear the whistle blow a hundred miles`  
+​ `你听那绵延百里的汽笛`  
+​ `A hundred miles, a hundred miles`  
+​ `一百英里又一百英里 载我远去`  
+​ `A hundred miles, A hundred miles`  
+​ `一百英里又一百英里 再回不去`  
+​ `You can hear the whistle blow A hundred miles`  
+​ `那绵延百里的汽笛会告诉你我离去的讯息`  
+​ `Lord, I'm one, Lord, I'm two, Lord`  
+​ `上帝啊，一百英里 两百英里 渐渐远去`  
+​ `I'm three, Lord, I'm four, Lord`  
+​ `三百英里 上帝啊，四百英里 再回不去`  
+​ `I'm five hundred miles away from home`  
+​ `不知不觉我便已离家五百英里`  
+​ `Away from home, away from home`  
+​ `背负一切 离乡背井`  
+​ `away from home, away from home`  
+​ `家在远方 我却再难回去`  
+​ `Lord, I'm five hundred miles away from home`  
+​ `上帝啊 家乡离我已有五百英里`  
+​ `Not a shirt on my back`  
+​ `如今我衣衫褴褛`  
+​ `Not a penny to my name`  
+​ `依旧是一文不名`  
+​ `Lord. I can't go back home this a-way`  
+​ `上帝啊 我怎能就这样回到家去`  
+​ `This a-way, this a-way`  
+​ `这般潦倒 这般困顿`  
+​ `This a-way, this a-way`  
+​ `这般处境 惨惨戚戚`  
+​ `Lord, I can't go back home this a-way`  
+​ `这样的我又怎好意思回到家去`  
+​ `If you missed the train I'm on`  
+​ `若那列车开动让我来不及见你`  
+​ `You will know that I am gone`  
+​ `那就说明我已独自黯然离去`  
+​ `You can hear the whistle blow A hundred miles`  
+​ `你听那绵延百里的汽笛`  
+​ `A hundred miles`  
+​ `一百英里`  
+​ `A hundred miles`  
+​ `又一百英里 载我远去`  
+​ `A hundred miles`  
+​ `一百英里`  
+​ `A hundred miles`  
+​ `又一百英里 再回不去`  
+​ `You can hear the whistle blow a hundred miles`  
+​ `你听那绵延百里的汽笛 声渐远去`  
+​ `You can hear the whistle blow a hundred miles`  
+​ `告诉着你我已离乡背井 不见归期`  
+​ `You can hear the whistle blow a hundred miles`  
+​ `那绵延百里的汽笛 一如我的叹息`  
 
 [^1]: 旧时潮汕对寓居他乡的同胞统称。
 [^2]: 潮汕的一种特色糕点。

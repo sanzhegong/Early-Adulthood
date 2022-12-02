@@ -33,31 +33,31 @@
 
 ​ 我转过身去拿冰箱里的冰块。Ken短小的手指已经在琴弦上跳舞了。大概是因为有段时间没有练习了，他的弹奏略显艰难，像到了四十岁又开始重新练习芭蕾舞的女人。我看着他的额头渐渐冒出汗来，鼻子上眼镜镜片都有些模糊了。这家伙，这会心里在想着什么呢？不会是想起高中时候弹吉他的时候了吧？总之，这家伙坐在我那空荡荡的客厅沙发上，弹着吉他，哼唱着地下丝绒的Candy Says[^15]。
 
-​ `Candy says`  
-​ `坎迪说`
-​ `I've come to hate my body`  
-​ `我开始憎恨自己的身体`
-​ `and all that it requires in this world`  
-​ `以及它在这世界上需要的所有东西`
-​ `Candy says`  
-​ `坎迪说`
-​ `I'd like to know completely`  
-​ `我想彻底地了解`
-​ `what others so discretely talk about`  
-​ `其他人到底在小心翼翼的说些什么`
-​ `I'm gonna watch the blue birds fly`  
-​ `我要望着青鸟飞翔`
-​ `Over my shoulder`  
-​ `从我的肩上飞过`
-​ `I'm gonna watch them pass me by`  
-​ `我想要看着它们从我身旁经过`
-​ `Maybe when I'm older`  
-​ `也许当我年纪再大些`
-​ `What do you think I'd see` 
-​ `你觉得我会领悟到什么`
-​ `If I could walk away from me`  
-​ `如果我可以离开我自己`
-​ `...`
+​ `Candy says`    
+​ `坎迪说`  
+​ `I've come to hate my body`    
+​ `我开始憎恨自己的身体`  
+​ `and all that it requires in this world`    
+​ `以及它在这世界上需要的所有东西`  
+​ `Candy says`    
+​ `坎迪说`  
+​ `I'd like to know completely`    
+​ `我想彻底地了解`  
+​ `what others so discretely talk about`    
+​ `其他人到底在小心翼翼的说些什么`  
+​ `I'm gonna watch the blue birds fly`    
+​ `我要望着青鸟飞翔`  
+​ `Over my shoulder`    
+​ `从我的肩上飞过`  
+​ `I'm gonna watch them pass me by`    
+​ `我想要看着它们从我身旁经过`  
+​ `Maybe when I'm older`    
+​ `也许当我年纪再大些`  
+​ `What do you think I'd see`   
+​ `你觉得我会领悟到什么`  
+​ `If I could walk away from me`    
+​ `如果我可以离开我自己`  
+​ `...`  
   
 ​ 我用夹子取出模具里的球状冰块，放在眼前仔细观察了一下，近乎透明，唯一不足的都是里面有些微小的气泡。不要紧的气泡而已，我心里想着，便把冰块丢在酒杯里去了。冰球嗞地一声滑过光滑的杯壁，然后碰撞到厚重的杯底，发出一声沉闷的声响。它在杯里旋转个不停，接着倒入的威士忌很快依附在冰块上，迫使它停下来。我端起酒杯，盯着里面琥珀色的令人感到温暖的威士忌，冰块里面的小气泡就像要挣脱出来一样。
 
@@ -298,66 +298,66 @@
 
 ​ 我和Ken互相勉励着无论如何要努力生存下去。他叫我播放点顽强的坚硬的音乐，于是我们听了绿日乐队的Boulevard Of Broken Dreams[^47]。我们在歌声里不停地冒着夜色行走，走过寂静的小巷，走过繁华的大路，走到人行天桥上。我感到累了，倚在栏杆上休息。Ken也停了下来，站在我的旁边，看着下面的车流。他开始破口大骂，骂这个冰冷的世界，骂冷漠的人们，骂玩弄他感情的女人，骂那些高高在上欺压弱小的混蛋，骂那份不断加班的混账工作。他告诉我，他想对着这个肮脏的世界手冲。我们累得坐下，坐在天桥上。我们看着那些忙着送夜单的人们骑着电瓶车驶上天桥，从我们面前匆忙驶过。尽管已经快是凌晨三点，他们依然在为了生计来回穿梭。在他妈的耶稣降临的第两千零二十一个年头，人民已经疲累不堪。Ken站起来，拉起我，我们听着Jimi Hendrix的All Along The Watchtower[^48]继续往前走，像贼和小偷一样，像骑着马的骑士一样。
 
-​ `There must be some kind of way out of here`
-​ `一定有路能离开这儿`
-​ `said the joker to the thief`
-​ `小丑对贼说`
-​ `There's too much confusion`
-​ `有太多的困惑`
-​ `I can't get no relief`
-​ `想不清楚`
-​ `Businessen they （uh） drink my wine`
-​ `商人喝我的酒`
-​ `Plowman dig my earth`
-​ `农民挖我的地`
-​ `None will level on the vine`
-​ `没人能超越认知`
-​ `Nobody of it is worth`
-​ `理解其价值何在`
-​ `Hey hey`
-​ `嘿 嘿`
-​ `No reason to get excited （uh） （huh）`
-​ `没理由激动的`
-​ `The thief he kindly spoke`
-​ `贼温和地说道`
-​ `There are many here among us （uh）`
-​ `我们中有许多人觉得`
-​ `who feel that life is but a joke`
-​ `生活不过是个玩笑`
-​ `But uh`
-​ `但是啊`
-​ `but you and I we been through that`
-​ `但是你和我，我们已经超脱`
-​ `And this is not our fate`
-​ `我们的命运不该这样`
-​ `So let us not talk falsely now`
-​ `现在就别再空讲了`
-​ `The hour's getting late`
-​ `时候已经不早`
-​ `Hey`
-​ `嘿`
-​ `Ooh All along the watchtower`
-​ `噢 沿着瞭望塔啊`
-​ `Princes kept their view`
-​ `王子们注视着远方`
-​ `while all the women came and went`
-​ `所有的女人熙熙攘攘`
-​ `Barefoot servants too`
-​ `赤脚仆人亦在其间`
-​ `Well uh`
-​ `好吧`
-​ `ooh Outside in the cold distance`
-​ `噢 凛裂的远方之外`
-​ `a wildcat did growl`
-​ `一只野猫在低声吼叫`
-​ `Two riders were approaching`
-​ `两个骑士渐行渐近`
-​ `and the wind began to howl`
-​ `而狂风开始怒号`
-​ `Gotta get away`
-​ `离开这儿吧`
-​ `All Along The Watchtower`
-​ `沿着瞭望塔离开吧`
+​ `There must be some kind of way out of here`  
+​ `一定有路能离开这儿`  
+​ `said the joker to the thief`  
+​ `小丑对贼说`  
+​ `There's too much confusion`  
+​ `有太多的困惑`  
+​ `I can't get no relief`  
+​ `想不清楚`  
+​ `Businessen they （uh） drink my wine`  
+​ `商人喝我的酒`  
+​ `Plowman dig my earth`  
+​ `农民挖我的地`  
+​ `None will level on the vine`  
+​ `没人能超越认知`  
+​ `Nobody of it is worth`  
+​ `理解其价值何在`  
+​ `Hey hey`  
+​ `嘿 嘿`  
+​ `No reason to get excited （uh） （huh）`  
+​ `没理由激动的`  
+​ `The thief he kindly spoke`  
+​ `贼温和地说道`  
+​ `There are many here among us （uh）`  
+​ `我们中有许多人觉得`  
+​ `who feel that life is but a joke`  
+​ `生活不过是个玩笑`  
+​ `But uh`  
+​ `但是啊`  
+​ `but you and I we been through that`  
+​ `但是你和我，我们已经超脱`  
+​ `And this is not our fate`  
+​ `我们的命运不该这样`  
+​ `So let us not talk falsely now`  
+​ `现在就别再空讲了`  
+​ `The hour's getting late`  
+​ `时候已经不早`  
+​ `Hey`  
+​ `嘿`  
+​ `Ooh All along the watchtower`  
+​ `噢 沿着瞭望塔啊`  
+​ `Princes kept their view`  
+​ `王子们注视着远方`  
+​ `while all the women came and went`  
+​ `所有的女人熙熙攘攘`  
+​ `Barefoot servants too`  
+​ `赤脚仆人亦在其间`  
+​ `Well uh`  
+​ `好吧`  
+​ `ooh Outside in the cold distance`  
+​ `噢 凛裂的远方之外`  
+​ `a wildcat did growl`  
+​ `一只野猫在低声吼叫`  
+​ `Two riders were approaching`  
+​ `两个骑士渐行渐近`  
+​ `and the wind began to howl`  
+​ `而狂风开始怒号`  
+​ `Gotta get away`  
+​ `离开这儿吧`  
+​ `All Along The Watchtower`  
+​ `沿着瞭望塔离开吧`  
 
 --- 
 ​ 我喝光残留的威士忌后，Ken问我。
@@ -406,99 +406,99 @@
 
  我们逆水行舟，我们回到过去。
 
-​ `Where is the sun`[^52]
-​ `那曾照在我额间的暖阳`
-​ `That shone on my head`
-​ `现已去向何方`
-​ `The sun in my life`
-​ `我生命中的那明日`
-​ `It is dead`
-​ `已经消亡`
-​ `It is dead`
-​ `已将消亡`
+​ `Where is the sun`[^52]  
+​ `那曾照在我额间的暖阳`  
+​ `That shone on my head`  
+​ `现已去向何方`  
+​ `The sun in my life`  
+​ `我生命中的那明日`  
+​ `It is dead`  
+​ `已经消亡`  
+​ `It is dead`  
+​ `已将消亡`  
 
-​ `Where is the light`
-​ `那点亮街道的光芒`
-​ `That would play`
-​ `现在`
-​ `In my streets`
-​ `又在何方`
-​ `And where are the friends`
-​ `在那里，我的友人们`
-​ `I could meet`
-​ `曾与我互诉衷肠`
-​ `I could meet`
-​ `互诉衷肠`
+​ `Where is the light`  
+​ `那点亮街道的光芒`  
+​ `That would play`  
+​ `现在`  
+​ `In my streets`  
+​ `又在何方`  
+​ `And where are the friends`  
+​ `在那里，我的友人们`  
+​ `I could meet`  
+​ `曾与我互诉衷肠`  
+​ `I could meet`  
+​ `互诉衷肠`  
 
-​ `Where are the girls`
-​ `那些我曾一度倾心的女子`
-​ `I left all behind`
-​ `现在又在何方`
-​ `The spicks and the specks`
-​ `那些如尘的小小回忆`
-​ `Of the girls on my mind`
-​ `还在我心间游弋`
+​ `Where are the girls`  
+​ `那些我曾一度倾心的女子`  
+​ `I left all behind`  
+​ `现在又在何方`  
+​ `The spicks and the specks`  
+​ `那些如尘的小小回忆`  
+​ `Of the girls on my mind`  
+​ `还在我心间游弋`  
 
-​ `Where is the sun`
-​ `那曾照在我额间的暖阳`
-​ `That shone on my head`
-​ `现已去向何方`
-​ `The sun in my life`
-​ `我生命中的那明日`
-​ `It is dead`
-​ `已经消亡`
-​ `It is dead`
-​ `已经消亡`
+​ `Where is the sun`  
+​ `那曾照在我额间的暖阳`  
+​ `That shone on my head`  
+​ `现已去向何方`  
+​ `The sun in my life`  
+​ `我生命中的那明日`  
+​ `It is dead`  
+​ `已经消亡`  
+​ `It is dead`  
+​ `已经消亡`  
 
-​ `Where are the girls`
-​ `那些我曾一度倾心的女子`
-​ `I left all behind`
-​ `现在又在何方`
-​ `The spicks and the specks`
-​ `那些如尘的小小回忆`
-​ `Of the girls on my mind`
-​ `还在我心间游弋`
+​ `Where are the girls`  
+​ `那些我曾一度倾心的女子`  
+​ `I left all behind`  
+​ `现在又在何方`  
+​ `The spicks and the specks`  
+​ `那些如尘的小小回忆`  
+​ `Of the girls on my mind`  
+​ `还在我心间游弋`  
 
-​ `Where are the girls`
-​ `那些我曾一度倾心的女子`
-​ `I left all behind`
-​ `现在又在何方`
-​ `The spicks and the specks`
-​ `那些如尘的小小回忆`
-​ `Of the girls on my mind`
-​ `还在我心间游弋`
+​ `Where are the girls`  
+​ `那些我曾一度倾心的女子`  
+​ `I left all behind`  
+​ `现在又在何方`  
+​ `The spicks and the specks`  
+​ `那些如尘的小小回忆`  
+​ `Of the girls on my mind`  
+​ `还在我心间游弋`  
 
-​ `Where is the girl I loved`
-​ `那个我曾交予真心的女子`
-​ `All along`
-​ `我爱她，九死不悔`
-​ `The girl that i loved`
-​ `只是我的知心爱人`
-​ `She's gone`
-​ `她已去向远方`
-​ `She's gone`
-​ `去向远方`
+​ `Where is the girl I loved`  
+​ `那个我曾交予真心的女子`  
+​ `All along`  
+​ `我爱她，九死不悔`  
+​ `The girl that i loved`  
+​ `只是我的知心爱人`  
+​ `She's gone`  
+​ `她已去向远方`  
+​ `She's gone`  
+​ `去向远方`  
 
-​ `All of my life`
-​ `我所有的匆匆过往`
-​ `I call yesterday`
-​ `谓之昨日，渺不可追`
-​ `The spicks and the specks`
-​ `那如尘的点滴往事`
-​ `Of my life 've gone away`
-​ `都已随时间消散成灰`
-​ `All that of my life`
-​ `我所有的匆匆过往`
-​ `I call yesterday`
-​ `谓之昨日，渺不可追`
-​ `The spicks and the specks`
-​ `那如尘的点滴往事`
-​ `Of my life 've gone away`
-​ `都已随时间消散成灰`
-​ `Everybody`
-​ `所有人`
-​ `Spicks and specks!`
-​ `所有回忆，都已随风而逝`
+​ `All of my life`  
+​ `我所有的匆匆过往`  
+​ `I call yesterday`  
+​ `谓之昨日，渺不可追`  
+​ `The spicks and the specks`  
+​ `那如尘的点滴往事`  
+​ `Of my life 've gone away`  
+​ `都已随时间消散成灰`  
+​ `All that of my life`  
+​ `我所有的匆匆过往`  
+​ `I call yesterday`  
+​ `谓之昨日，渺不可追`  
+​ `The spicks and the specks`  
+​ `那如尘的点滴往事`  
+​ `Of my life 've gone away`  
+​ `都已随时间消散成灰`  
+​ `Everybody`  
+​ `所有人`  
+​ `Spicks and specks!`  
+​ `所有回忆，都已随风而逝`  
 
 [^1]: Jimi Hendrix。美国吉他手，被公认为最伟大的电吉他演奏者。
 [^2]: Radiohead代表作，译作假的塑料盆栽。

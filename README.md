@@ -28,7 +28,7 @@
 
 ![支付宝](./pic/Alipay.jpg)
 
-！[微信支付](./pic/Wechat.jpg)
+![微信支付](./pic/Wechat.jpg)
 
 联系作者：2248609138@qq.com
 Contact with: 2248609138@qq.com

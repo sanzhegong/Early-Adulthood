@@ -203,20 +203,20 @@
 
 ​ Turing飞回了笼子里。十二点的时候，我拿起吉他唱了绿洲乐队的Sitting Here In Silence[^45]。
 
-​`Sittin' in silence on my own`
-​`独自一人静坐着`
-​`Wait 'til everybody's gone`
-​`等待所有人离开`
-​`And only I can see What it means to be`
-​`只有我看出，这意味着什么`
-​`Sittin' here in silence on my own`
-​`独自一人安静地坐在这里`
-​`And only I can see What it means to be`
-​`只有我一人明白，这意味着什么`
-​`Sittin' here in silence on my own`
-​`我独自在寂静里坐着`
-​`Sittin' here in silence on my own`
-​`我独自在寂静里坐着`
+​`Sittin' in silence on my own`  
+​`独自一人静坐着`  
+​`Wait 'til everybody's gone`  
+​`等待所有人离开`  
+​`And only I can see What it means to be`  
+​`只有我看出，这意味着什么`  
+​`Sittin' here in silence on my own`  
+​`独自一人安静地坐在这里`  
+​`And only I can see What it means to be`  
+​`只有我一人明白，这意味着什么`  
+​`Sittin' here in silence on my own`  
+​`我独自在寂静里坐着`  
+​`Sittin' here in silence on my own`  
+​`我独自在寂静里坐着`  
 
 ​ “该死！” 放下吉他的时候我骂到。
 
@@ -333,43 +333,43 @@
 
 ​ 我关上了房门。我又一次坐到了床上。我不知道我该干什么。我连威士忌也不想喝了。我看着面前那个硕大的空空的鸟笼。悲伤的，焦虑的，孤独的，蓝色的，紫色的，灰色的，各种复杂的情绪向我涌来，他们混合在一起。最终我又感到了巨大的疲惫。我不能自主。隔壁学校的放学铃声打乱了我的思绪，那是贝多芬[^64]的欢乐颂[^65]。我看着学校，看见小孩子们背着书包小跑着出了教室，欢声笑语地往学校门口走。我强撑着精神，抬起酸痛的手，拿起了我的吉他，弹奏了滚石乐队的As Tears Go By[^66]。
 
-​ `It is the evening of the day`
-​ `那是一个傍晚时分`
-​ `I sit and watch the children play`
-​ `我坐下来观望孩子们玩耍`
-​ `Smiling faces I can see`
-​ `笑脸映入眼帘`
-​ `But not for me`
-​ `但和我无关`
-​ `I sit and watch`
-​ `我坐着继续凝视`
-​ `As tears go by`
-​ `不觉泪水滚落`
-​ `My riches can't buy everything`
-​ `金钱不是万能的`
-​ `I want to hear the children sing`
-​ `我想要的是听听孩子们的歌声`
-​ `All I hear is the sound`
-​ `但我听到的却是`
-​ `Of rain falling on the ground`
-​ `雨水打湿地面的冗音`
-​ `I sit and watch`
-​ `我坐着继续凝视`
-​ `As tears go by`
-​ `不觉泪水滚落`
+​ `It is the evening of the day`  
+​ `那是一个傍晚时分`  
+​ `I sit and watch the children play`  
+​ `我坐下来观望孩子们玩耍`  
+​ `Smiling faces I can see`  
+​ `笑脸映入眼帘`  
+​ `But not for me`  
+​ `但和我无关`  
+​ `I sit and watch`  
+​ `我坐着继续凝视`  
+​ `As tears go by`  
+​ `不觉泪水滚落`  
+​ `My riches can't buy everything`  
+​ `金钱不是万能的`  
+​ `I want to hear the children sing`  
+​ `我想要的是听听孩子们的歌声`  
+​ `All I hear is the sound`  
+​ `但我听到的却是`  
+​ `Of rain falling on the ground`  
+​ `雨水打湿地面的冗音`  
+​ `I sit and watch`  
+​ `我坐着继续凝视`  
+​ `As tears go by`  
+​ `不觉泪水滚落`  
 
-​ `It is the evening of the day`
-​ `那是傍晚时分啊`
-​ `I sit and watch the children play`
-​ `我坐下来观望孩子们玩耍`
-​ `Doin' things I used to do`
-​ `玩的都是我曾经玩过的那些`
-​ `They think are new`
-​ `但他们觉得新奇`
-​ `I sit and watch`
-​ `我坐着继续凝视`
-​ `As tears go by`
-​ `不觉泪水滚落`
+​ `It is the evening of the day`  
+​ `那是傍晚时分啊`  
+​ `I sit and watch the children play`  
+​ `我坐下来观望孩子们玩耍`  
+​ `Doin' things I used to do`  
+​ `玩的都是我曾经玩过的那些`  
+​ `They think are new`  
+​ `但他们觉得新奇`  
+​ `I sit and watch`  
+​ `我坐着继续凝视`  
+​ `As tears go by`  
+​ `不觉泪水滚落`  
 
 [^1]:一款职场社交应用软件。
 [^2]:出自中国作家鲁迅小说《故乡》。

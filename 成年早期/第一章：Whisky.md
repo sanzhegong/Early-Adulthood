@@ -223,19 +223,19 @@
 
 ​ 晚上十一点，Whisky吃完了烧烤和水果，心满意足地从我这片狼藉的跑马地上扬鞭离去，在该死的Sgt.Pepper's Lonely Hearts Club Band[^43]的声响中。
 
-​ `We're Sgt. Pepper's Lonely Hearts Club Band`
-​ `我们是佩伯军士孤寂的心俱乐部乐队`
-​ `We hope you will enjoy the show`
-​ `我们希望你会喜欢我们的演出`
-​ `We're Sgt. Pepper's Lonely Hearts Club Band`
-​ `我们是佩伯军士孤寂的心俱乐部乐队`
-​ `Sit back and let the evening go`
-​ `坐下享受美好的夜晚`
-​ `Sgt. Pepper's Lonely, Sgt. Pepper's Lonely`
-​ `佩伯军士孤寂的心，佩伯军士孤寂的心`
-​ `Sgt. Pepper's Lonely Hearts Club Band`
-​ `佩伯军士孤寂的心俱乐部乐队`
-​ `...`
+​ `We're Sgt. Pepper's Lonely Hearts Club Band`  
+​ `我们是佩伯军士孤寂的心俱乐部乐队`  
+​ `We hope you will enjoy the show`  
+​ `我们希望你会喜欢我们的演出`  
+​ `We're Sgt. Pepper's Lonely Hearts Club Band`  
+​ `我们是佩伯军士孤寂的心俱乐部乐队`  
+​ `Sit back and let the evening go`  
+​ `坐下享受美好的夜晚`  
+​ `Sgt. Pepper's Lonely, Sgt. Pepper's Lonely`  
+​ `佩伯军士孤寂的心，佩伯军士孤寂的心`  
+​ `Sgt. Pepper's Lonely Hearts Club Band`  
+​ `佩伯军士孤寂的心俱乐部乐队`  
+​ `...`  
 
 ​ 我自己孤零零地收拾好一切，喝掉加冰的威士忌，一个人上床睡觉。
 
@@ -365,90 +365,90 @@
 
 ​ 我们闷闷地走了很久。最终我没有去牵她的手，我想她应该也不乐意。反正这个该死的夜晚就到了分离的时候了。她让我不用再送了，尽管还没到她小区门口，但她示意我应该打个的士滚蛋了。分别的时候，我们都在说着他妈的下次见，可是，属于我们的夜晚到头了。我知道我已经很累了，可我真的很想他妈的走路回去。我就该戴着我那顶该死的鸭舌帽，反过来把帽舌压到我的后颈上，然后一步一步顶着风走回去。我不需要任何可怜虫来同情我。我就是一个固守己见，注定孤独的混蛋，就他妈该让夜风吹胀的那种混蛋。可在那个该死的晚上，我没有戴我的帽子，我穿着一件无袖球衣，冻得发抖。我甚至很是正经地梳着一个背头，上面涂满了发泥。最后我只能把自己塞进该死的计程车，回到了我的床上。我没有忘记灌上半杯威士忌。我重复听着部落乐队[^78]的Dancehall[^79]，Turing飞到床尾叫个不停，让我更加心烦意乱。我又想起了Whisky，我已经不能忘记她了。我听见那狗屁歌词是这样夸赞她的。
 
-​ `She's a gypsy queen real tall and mean`
-​ `她是高挑又挑剔的吉卜赛女王`
-​ `She's an airplane no one's ever seen`
-​ `她是一架从未有人见过的飞机`
-​ `She's a firecracker real dancehall master`
-​ `她是绚烂的烟火，一个真正的舞蹈大师`
-​ `She's a hurricane when you walk past her`
-​ `当你经过她身旁，她宛如飓风吹袭`
-​ `She's the morning sun in the midnight wind`
-​ `她是午夜的微风中熠熠生辉的朝阳`
-​ `She'd sell her soul for all her sins`
-​ `她会用她全部的灵魂赎犯下的罪`
-​ `She'll come right at you real Cleopatra`
-​ `她朝你走来，就像一个真正的埃及艳后`
-​ `You take all you got and you give it to her`
-​ `你倾其所有全部给予了她`
-​ `Did you see that lightning in the sky`
-​ `你看见空中的那道闪电吗`
-​ `A window to my mind`
-​ `它是我心灵的窗口`
-​ `It leaves me hypnotized`
-​ `它令我向往着`
-​ `Somewhere better`
-​ `一个更魔幻的地方`
-​ `Did you feel that thunder hit last night`
-​ `你听见昨晚的雷鸣吗`
-​ `A poison in my mind`
-​ `它是我脑中的毒`
-​ `It leaves me hypnotized`
-​ `它令我向往着`
-​ `Somewhere better`
-​ `一个更魔幻的地方`
-​ `She's a striptease real hard to please`
-​ `她是难以取悦的脱衣舞女郎`
-​ `She'll cheer you up bring you to your knees`
-​ `她能令你奋不顾身成为裙下之臣`
-​ `She's a movie star fast sports car`
-​ `她像电影明星一样闪亮，极速的跑车一样狂野`
-​ `She's a razor blade she'll take you far`
-​ `她就像剃刀的刀锋，她能带你远走高飞`
-​ `She's the ocean's cool and your midnight ride`
-​ `她能像海洋般冷酷，也能在午夜载你一程`
-​ `She's a devil's church and a preacher's wife`
-​ `她就像恶魔的教堂，传教士的妻子`
-​ `She'll come right at you real Cleopatra`
-​ `她朝你走来，就像一个真正的埃及艳后`
-​ `You take all you got and you give it to her`
-​ `你倾其所有，并全部给予了她`
-​ `Did you see that lightning in the sky`
-​ `你看见空中的那道闪电吗`
-​ `A window to my mind`
-​ `它是我心灵的窗口`
-​ `It leaves me hypnotized`
-​ `它令我向往着`
-​ `Somewhere better`
-​ `一个更魔幻的地方`
-​ `Did you feel that thunder hit last night`
-​ `你听见昨晚的雷鸣吗`
-​ `A poison in my mind`
-​ `它是我脑中的毒`
-​ `It leaves me hypnotized`
-​ `它令我向往着`
-​ `Somewhere better`
-​ `一个更魔幻的地方`
-​ `I don't care for dancing`
-​ `我并不喜欢跳舞`
-​ `but thanks for asking`
-​ `但还是多谢邀请`
-​ `Did you see that lightning in the sky`
-​ `你看见空中的那道闪电吗`
-​ `A window to my mind`
-​ `它是我心灵的窗口`
-​ `It leaves me hypnotized`
-​ `它令我向往着`
-​ `Somewhere better`
-​ `一个更魔幻的地方`
-​ `Did you feel that thunder hit last night`
-​ `你听见昨晚的雷鸣吗`
-​ `A poison in my mind`
-​ `它是我意识中的毒药`
-​ `It leaves me hypnotized`
-​ `它令我向往着`
-​ `Somewhere better`
-​ `一个更魔幻的地方   `                                 
+​ `She's a gypsy queen real tall and mean`  
+​ `她是高挑又挑剔的吉卜赛女王`  
+​ `She's an airplane no one's ever seen`  
+​ `她是一架从未有人见过的飞机`  
+​ `She's a firecracker real dancehall master`  
+​ `她是绚烂的烟火，一个真正的舞蹈大师`  
+​ `She's a hurricane when you walk past her`  
+​ `当你经过她身旁，她宛如飓风吹袭`  
+​ `She's the morning sun in the midnight wind`  
+​ `她是午夜的微风中熠熠生辉的朝阳`  
+​ `She'd sell her soul for all her sins`  
+​ `她会用她全部的灵魂赎犯下的罪`  
+​ `She'll come right at you real Cleopatra`  
+​ `她朝你走来，就像一个真正的埃及艳后`  
+​ `You take all you got and you give it to her`  
+​ `你倾其所有全部给予了她`  
+​ `Did you see that lightning in the sky`  
+​ `你看见空中的那道闪电吗`  
+​ `A window to my mind`  
+​ `它是我心灵的窗口`  
+​ `It leaves me hypnotized`  
+​ `它令我向往着`  
+​ `Somewhere better`  
+​ `一个更魔幻的地方`  
+​ `Did you feel that thunder hit last night`  
+​ `你听见昨晚的雷鸣吗`  
+​ `A poison in my mind`  
+​ `它是我脑中的毒`  
+​ `It leaves me hypnotized`  
+​ `它令我向往着`  
+​ `Somewhere better`  
+​ `一个更魔幻的地方`  
+​ `She's a striptease real hard to please`  
+​ `她是难以取悦的脱衣舞女郎`  
+​ `She'll cheer you up bring you to your knees`  
+​ `她能令你奋不顾身成为裙下之臣`  
+​ `She's a movie star fast sports car`  
+​ `她像电影明星一样闪亮，极速的跑车一样狂野`  
+​ `She's a razor blade she'll take you far`  
+​ `她就像剃刀的刀锋，她能带你远走高飞`  
+​ `She's the ocean's cool and your midnight ride`  
+​ `她能像海洋般冷酷，也能在午夜载你一程`  
+​ `She's a devil's church and a preacher's wife`  
+​ `她就像恶魔的教堂，传教士的妻子`  
+​ `She'll come right at you real Cleopatra`  
+​ `她朝你走来，就像一个真正的埃及艳后`  
+​ `You take all you got and you give it to her`  
+​ `你倾其所有，并全部给予了她`  
+​ `Did you see that lightning in the sky`  
+​ `你看见空中的那道闪电吗`  
+​ `A window to my mind`  
+​ `它是我心灵的窗口`  
+​ `It leaves me hypnotized`  
+​ `它令我向往着`  
+​ `Somewhere better`  
+​ `一个更魔幻的地方`  
+​ `Did you feel that thunder hit last night`  
+​ `你听见昨晚的雷鸣吗`  
+​ `A poison in my mind`  
+​ `它是我脑中的毒`  
+​ `It leaves me hypnotized`  
+​ `它令我向往着`  
+​ `Somewhere better`  
+​ `一个更魔幻的地方`  
+​ `I don't care for dancing`  
+​ `我并不喜欢跳舞`  
+​ `but thanks for asking`  
+​ `但还是多谢邀请`  
+​ `Did you see that lightning in the sky`  
+​ `你看见空中的那道闪电吗`  
+​ `A window to my mind`  
+​ `它是我心灵的窗口`  
+​ `It leaves me hypnotized`  
+​ `它令我向往着`  
+​ `Somewhere better`  
+​ `一个更魔幻的地方`  
+​ `Did you feel that thunder hit last night`  
+​ `你听见昨晚的雷鸣吗`  
+​ `A poison in my mind`  
+​ `它是我意识中的毒药`  
+​ `It leaves me hypnotized`  
+​ `它令我向往着`  
+​ `Somewhere better`  
+​ `一个更魔幻的地方   `                                   
 
 [^1]:Blur，英国摇滚乐队。
 [^2]:Blur代表作，译为愚人节。

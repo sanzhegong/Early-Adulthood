@@ -267,33 +267,33 @@
 
 ​ 我又唱了史密斯乐队[^25]的There Is A Light That Never Goes Out[^26]。
 
-​ `Take me out tonight`
-​ `今夜带我出去`
-​ `Where there's music and there's people` 
-​ `那里有音乐和人群`
-​ `Who are young and alive`
-​ `那里青春永不息`
-​ `Driving in your car`
-​ `坐上你的车`
-​ `I never never want to go home`
-​ `我真不想回家`
-​ `Because I haven't got one anymore`
-​ `那是因为我一无所有`
-​ `Take me out tonight`
-​ `今夜带我出去`
-​ `Because I want to see people`
-​ `因为我想看看人群`
-​ `And I want to see life`
-​ `我想享受生活`
-​ `Driving in your car`
-​ `坐上你的车`
-​ `Oh please don't drop me home`
-​ `噢，别把我扔在家里`
-​ `Because it's not my home it's their home`
-​ `因为这不是我的家`
-​ `And I'm welcome no more`
-​ `我不再受欢迎。`
-​ `...`
+​ `Take me out tonight`  
+​ `今夜带我出去`  
+​ `Where there's music and there's people`   
+​ `那里有音乐和人群`  
+​ `Who are young and alive`  
+​ `那里青春永不息`  
+​ `Driving in your car`  
+​ `坐上你的车`  
+​ `I never never want to go home`  
+​ `我真不想回家`  
+​ `Because I haven't got one anymore`  
+​ `那是因为我一无所有`  
+​ `Take me out tonight`  
+​ `今夜带我出去`  
+​ `Because I want to see people`  
+​ `因为我想看看人群`  
+​ `And I want to see life`  
+​ `我想享受生活`  
+​ `Driving in your car`  
+​ `坐上你的车`  
+​ `Oh please don't drop me home`  
+​ `噢，别把我扔在家里`  
+​ `Because it's not my home it's their home`  
+​ `因为这不是我的家`  
+​ `And I'm welcome no more`  
+​ `我不再受欢迎。`  
+​ `...`  
 
 ---
 ​ 我万万没有想到的是，在我被女孩子搭讪之前，我先被基佬搭讪了。我在烧烤摊上把这件事告诉Jin，他笑得直拍桌子。
@@ -443,75 +443,75 @@
 
 ​ 我没有回答他，我轻轻唱起绿洲乐队的歌。
 
-​ `Slip inside the eye of your mind`[^46]
-​ `窥视你的内心`
-​ `Don't you know you might find`
-​ `你知道吗，你或许会找到`
-​ `A better place to play`
-​ `一个更美好的地方`
-​ `You said that you'd never been`
-​ `你说你从未去到那里`
-​ `But all the things that you've seen`
-​ `但是你所见到的万千事物`
-​ `Slowly fade away`
-​ `都在渐渐消逝褪色`
+​ `Slip inside the eye of your mind`[^46]  
+​ `窥视你的内心`  
+​ `Don't you know you might find`  
+​ `你知道吗，你或许会找到`  
+​ `A better place to play`  
+​ `一个更美好的地方`  
+​ `You said that you'd never been`  
+​ `你说你从未去到那里`  
+​ `But all the things that you've seen`  
+​ `但是你所见到的万千事物`  
+​ `Slowly fade away`  
+​ `都在渐渐消逝褪色`  
 
-​ `So I'll start a revolution from my bed`
-​ `所以我要从梦中醒来`
-​ `'Cause you said the brains I had went to my head`
-​ `因为你们说我的思想已经冲昏了我的头脑`
-​ `Step outside, summertime's in bloom`
-​ `外面夏日的花香馥郁`
-​ `Stand up beside the fireplace`
-​ `仿佛站在温暖的炉火旁`
-​ `Take that look from off your face`
-​ `别摆着你那副臭脸`
-​ `You ain't ever gonna burn my heart out`
-​ `你永远无法让我燃烧的心熄灭`
+​ `So I'll start a revolution from my bed`  
+​ `所以我要从梦中醒来`  
+​ `'Cause you said the brains I had went to my head`  
+​ `因为你们说我的思想已经冲昏了我的头脑`  
+​ `Step outside, summertime's in bloom`  
+​ `外面夏日的花香馥郁`  
+​ `Stand up beside the fireplace`  
+​ `仿佛站在温暖的炉火旁`  
+​ `Take that look from off your face`  
+​ `别摆着你那副臭脸`  
+​ `You ain't ever gonna burn my heart out`  
+​ `你永远无法让我燃烧的心熄灭`  
 
-​ `And So Sally can wait, she knows it's too late as we're walking on by`
-​ `于是，莎莉愿意等待 当我们继续踏上征途时，她知道挽留已经太晚`
-​ `Her soul slides away, but don't look back in anger I heard you say`
-​ `她魂不守舍 但是我听到你说 不要为往事而懊恼`
+​ `And So Sally can wait, she knows it's too late as we're walking on by`  
+​ `于是，莎莉愿意等待 当我们继续踏上征途时，她知道挽留已经太晚`  
+​ `Her soul slides away, but don't look back in anger I heard you say`  
+​ `她魂不守舍 但是我听到你说 不要为往事而懊恼`  
 
-​ `Take me to the place where you go`
-​ `带我去你要去的地方`
-​ `Where nobody knows if it's night or day`
-​ `那里无人知晓 无论是夜晚还是白天`
-​ `Please don't put your life in the hands`
-​ `请不要把你生命的意义`
-​ `Of a Rock n Roll band`
-​ `押注在摇滚乐团上`
-​ `Who'll throw it all away`
-​ `他们只会挥霍掉一切`
+​ `Take me to the place where you go`  
+​ `带我去你要去的地方`  
+​ `Where nobody knows if it's night or day`  
+​ `那里无人知晓 无论是夜晚还是白天`  
+​ `Please don't put your life in the hands`  
+​ `请不要把你生命的意义`  
+​ `Of a Rock n Roll band`  
+​ `押注在摇滚乐团上`  
+​ `Who'll throw it all away`  
+​ `他们只会挥霍掉一切`  
 
-​ `I'll gonna start a revolution from my bed`
-​ `所以我要从梦中醒来`
-​ `'Cause you said the brains I had went to my head`
-​ `因为你们说我的思想已经冲昏了我的头脑`
-​ `Step outside the summertime's in bloom`
-​ `外面夏日的花香馥郁`
-​ `Stand up beside the fireplace`
-​ `仿佛站在温暖的炉火旁`
-​ `Take that look from off your face`
-​ `别摆着你那副臭脸`
-​ `'Cause you ain't ever gonna burn my heart out`
-​ `你永远无法让我燃烧的心熄灭`
+​ `I'll gonna start a revolution from my bed`  
+​ `所以我要从梦中醒来`  
+​ `'Cause you said the brains I had went to my head`  
+​ `因为你们说我的思想已经冲昏了我的头脑`  
+​ `Step outside the summertime's in bloom`  
+​ `外面夏日的花香馥郁`  
+​ `Stand up beside the fireplace`  
+​ `仿佛站在温暖的炉火旁`  
+​ `Take that look from off your face`  
+​ `别摆着你那副臭脸`  
+​ `'Cause you ain't ever gonna burn my heart out`  
+​ `你永远无法让我燃烧的心熄灭`  
 
-​ `So Sally can wait, she knows it's too late as she's walking on by`
-​ `于是，莎莉愿意等待 当她上路时，她知道为时已晚`
-​ `My soul slides away, but don't look back in anger I heard you say`
-​ `我为她失魂 但是我听到你说 不要为往事而懊恼`
-​ `So Sally can wait, she knows it's too late as we're walking on by`
-​ `于是，莎莉愿意等待 当我们继续踏上征途时，她知道挽留已经太晚`
-​ `Her soul slides away, but don't look back in anger I heard you say`
-​ `她魂不守舍 但是我听到你说 不要为往事而懊恼`
-​ `So Sally can wait, she knows it's too late as she's walking on by`
-​ `于是，莎莉愿意等待 当她上路时，她知道为时已晚`
-​ `My soul slides away, but don't look back in anger, don't look back in anger, I heard you say`
-​ `我为她失魂 但是我听到你说 不要为往事而懊恼`
-​ `At least not today`
-​ `至少今天别这样`
+​ `So Sally can wait, she knows it's too late as she's walking on by`  
+​ `于是，莎莉愿意等待 当她上路时，她知道为时已晚`  
+​ `My soul slides away, but don't look back in anger I heard you say`  
+​ `我为她失魂 但是我听到你说 不要为往事而懊恼`  
+​ `So Sally can wait, she knows it's too late as we're walking on by`  
+​ `于是，莎莉愿意等待 当我们继续踏上征途时，她知道挽留已经太晚`  
+​ `Her soul slides away, but don't look back in anger I heard you say`  
+​ `她魂不守舍 但是我听到你说 不要为往事而懊恼`  
+​ `So Sally can wait, she knows it's too late as she's walking on by`  
+​ `于是，莎莉愿意等待 当她上路时，她知道为时已晚`  
+​ `My soul slides away, but don't look back in anger, don't look back in anger, I heard you say`  
+​ `我为她失魂 但是我听到你说 不要为往事而懊恼`  
+​ `At least not today`  
+​ `至少今天别这样`  
 
 [^1]:Holden Caulfield。小说《麦田里的守望者》的主人公，下文的潘西中学是开除他的学校。
 [^2]:Arnold Schwarzenegger。美国健美运动员和演员。
