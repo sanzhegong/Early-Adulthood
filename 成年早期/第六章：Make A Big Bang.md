@@ -211,50 +211,50 @@
 
 ​ “弟阿[^29]，可惜了。你怎么去读理科了。”
 
-​ `Good times for a change`
-​ `是时候改变`
-​ `See, the luck I've had`
-​ `看，我是多么幸运`
-​ `Can make a good man turn bad`
-​ `让一个好男人变坏`
-​ `So please, please, please`
-​ `求求你`
-​ `Let me, let me, let me`
-​ `让我`
-​ `Let me get what I want this time`
-​ `让我得到我想要的一切`
-​ `Get what I want this time`
-​ `就这一次`
-​ `Haven't had a dream in a long time`
-​ `我有太久没有梦想成真`
-​ `See, the life I've had`
-​ `看，我的一生`
-​ `Can make a good man turn bad`
-​ `都足以让一个好人变坏了`
-​ `So for once in my life`
-​ `所以我一生只有这一次`
-​ `Let me get what I want`
-​ `让我得到我想要的一切`
-​ `Lord knows, it would be the first time`
-​ `上帝知道这是第一次`
-​ `Lord knows, it would be the first time`
-​ `上帝知道这是第一次`
-​ `So please, please, please`
-​ `求求你`
-​ `Let me, let me, let me`
-​ `让我`
-​ `Let me get what I want this time`
-​ `这次让我得到我想要的一切`
-​ `So for once in my life`
-​ `就这一次`
-​ `Let me get what I want`
-​ `让我得到我想要的一切`
-​ `Lord knows, it would be the first time`
-​ `上帝知道这是第一次`
-​ `Lord knows, it would be the first time`
-​ `上帝知道这是第一次`
-​ `Lord knows, it would be the first time`
-​ `上帝知道这是第一次`
+​ `Good times for a change`  
+​ `是时候改变`  
+​ `See, the luck I've had`  
+​ `看，我是多么幸运`  
+​ `Can make a good man turn bad`  
+​ `让一个好男人变坏`  
+​ `So please, please, please`  
+​ `求求你`  
+​ `Let me, let me, let me`  
+​ `让我`  
+​ `Let me get what I want this time`  
+​ `让我得到我想要的一切`  
+​ `Get what I want this time`  
+​ `就这一次`  
+​ `Haven't had a dream in a long time`  
+​ `我有太久没有梦想成真`  
+​ `See, the life I've had`  
+​ `看，我的一生`  
+​ `Can make a good man turn bad`  
+​ `都足以让一个好人变坏了`  
+​ `So for once in my life`  
+​ `所以我一生只有这一次`  
+​ `Let me get what I want`  
+​ `让我得到我想要的一切`  
+​ `Lord knows, it would be the first time`  
+​ `上帝知道这是第一次`  
+​ `Lord knows, it would be the first time`  
+​ `上帝知道这是第一次`  
+​ `So please, please, please`  
+​ `求求你`  
+​ `Let me, let me, let me`  
+​ `让我`  
+​ `Let me get what I want this time`  
+​ `这次让我得到我想要的一切`  
+​ `So for once in my life`  
+​ `就这一次`  
+​ `Let me get what I want`  
+​ `让我得到我想要的一切`  
+​ `Lord knows, it would be the first time`  
+​ `上帝知道这是第一次`  
+​ `Lord knows, it would be the first time`  
+​ `上帝知道这是第一次`  
+​ `Lord knows, it would be the first time`  
+​ `上帝知道这是第一次`  
 
 
 ---
@@ -405,94 +405,94 @@
 
 ​ 那一年，我们的演出，就像大卫鲍伊[^33]的华丽摇滚[^34]，震撼人心。
 
-​ `Sixty-nine was cheapo wine`[^35]
-​ `记得69年的廉价葡萄酒`
-​ `Have a good time`
-​ `那时候过得快活潇洒`
-​ `What's your sign?`
-​ `你什么特点呢？`
-​ `Float up to the Roundhouse`
-​ `在一个周日下午`
-​ `On a Sunday afternoon`
-​ `溜到圆屋酒店`
-​ `In Seventy we all agreed`
-​ `70年我们都觉得`
-​ `A King's Road flat was the place to be`
-​ `国王大道的公寓是个好去处`
-​ `'Cause Chelsea girls are the best in the world for company.`
-​ `因为切尔西妞全世界最棒`
-​ `In Seventy-one all the people come`
-​ `71年所有的人都来了`
-​ `Bust a few seats but it's just in fun`
-​ `砸了几把椅子，只是好玩而已`
-​ `Take the mick out of the top of pops`
-​ `把Mick（滚石主唱）挤下了热榜第一`
-​ `We play better than they do (yeah, yeah, yeah)`
-​ `我们比他们牛逼`
-​ `In Seventy-two we was born to lose`
-​ `72年注定是失败的一年`
-​ `We slipped down snakes into yesterday's news`
-​ `我们成了明日黄花`
-​ `I was ready to quit`
-​ `我都准备放弃了`
-​ `But then we went to Croydon`
-​ `但后来我们去了克里登`
-​ `Do you remember the Saturday gigs?`
-​ `你还记得周六那次演唱会么?`
-​ `We do, we do`
-​ `我们一直记得`
-​ `Do you remember the Saturday gigs?`
-​ `你还记得周六那次演唱会么?`
-​ `We do, we do`
-​ `我们一直记得`
-​ `The tickets for the fantasy were twelve and six a time`
-​ `票价炒到了72`
-​ `A fairy tale on sale`
-​ `那简直是货架上的神话`
-​ `Oh, Seventy-three was a jambouree`
-​ `哦，73那年就是一场狂欢`
-​ `We were the dudes and the dudes were we.(oh oh oh oh oh)`
-​ `我们就是所有人的焦点`
-​ `Did you see the suits and the platform boots? (oh dear, oh boy, ...)`
-​ `你看到那些套装和厚跟靴了么？`
-​ `In Seventy-four on the Broadway tour`
-​ `74年的百老汇巡演`
-​ `We didn't much like dressing up no more`
-​ `我们已经不太喜欢盛装打扮了`
-​ `Don't wanna be hip - but thanks for a great trip.`
-​ `不想穿得很潮-但还是要感谢那一场美好旅行`
-​ `Do you remember the Saturday gigs?`
-​ `你还记得周六那次演唱会么?`
-​ `We do, we do`
-​ `我们一直记得`
-​ `Do you remember the Saturday gigs?`
-​ `你还记得周六那次演唱会么?`
-​ `We do, we do`
-​ `我们一直记得`
-​ `But now the kids pay a couple of quid`
-​ `但现在小子们只要花几英镑`
-​ `'Cause they need it just the same`
-​ `反正他们只需要一成不变的东西`
-​ `It's all a game`
-​ `全都只是一场游戏`
-​ `A grown-up game`
-​ `教做人的游戏`
-​ `But you got off on those Saturday gigs`
-​ `你还记得周六那次演唱会么?`
-​ `And we did, we did`
-​ `我们一直记得`
-​ `'Cause you got off on those Saturday gigs`
-​ `你们曾为周六那次演唱会沉醉狂欢`
-​ `And we did, we did`
-​ `我们都很尽兴`
-​ `And we got off on those Saturday gigs`
-​ `我们曾为周六那次演唱会沉醉狂欢`
-​ `And you did, you did`
-​ `你们也都很尽兴`
-​ `And we got off on those Saturday gigs`
-​ `我们曾为周六那次演唱会沉醉狂欢`
-​ `'Cause you did, you did`
-​ `你们也都很尽兴`
+​ `Sixty-nine was cheapo wine`[^35]  
+​ `记得69年的廉价葡萄酒`  
+​ `Have a good time`  
+​ `那时候过得快活潇洒`  
+​ `What's your sign?`  
+​ `你什么特点呢？`  
+​ `Float up to the Roundhouse`  
+​ `在一个周日下午`  
+​ `On a Sunday afternoon`  
+​ `溜到圆屋酒店`  
+​ `In Seventy we all agreed`  
+​ `70年我们都觉得`  
+​ `A King's Road flat was the place to be`  
+​ `国王大道的公寓是个好去处`  
+​ `'Cause Chelsea girls are the best in the world for company.`  
+​ `因为切尔西妞全世界最棒`  
+​ `In Seventy-one all the people come`  
+​ `71年所有的人都来了`  
+​ `Bust a few seats but it's just in fun`  
+​ `砸了几把椅子，只是好玩而已`  
+​ `Take the mick out of the top of pops`  
+​ `把Mick（滚石主唱）挤下了热榜第一`  
+​ `We play better than they do (yeah, yeah, yeah)`  
+​ `我们比他们牛逼`  
+​ `In Seventy-two we was born to lose`  
+​ `72年注定是失败的一年`  
+​ `We slipped down snakes into yesterday's news`  
+​ `我们成了明日黄花`  
+​ `I was ready to quit`  
+​ `我都准备放弃了`  
+​ `But then we went to Croydon`  
+​ `但后来我们去了克里登`  
+​ `Do you remember the Saturday gigs?`  
+​ `你还记得周六那次演唱会么?`  
+​ `We do, we do`  
+​ `我们一直记得`  
+​ `Do you remember the Saturday gigs?`  
+​ `你还记得周六那次演唱会么?`  
+​ `We do, we do`  
+​ `我们一直记得`  
+​ `The tickets for the fantasy were twelve and six a time`  
+​ `票价炒到了72`  
+​ `A fairy tale on sale`  
+​ `那简直是货架上的神话`  
+​ `Oh, Seventy-three was a jambouree`  
+​ `哦，73那年就是一场狂欢`  
+​ `We were the dudes and the dudes were we.(oh oh oh oh oh)`  
+​ `我们就是所有人的焦点`  
+​ `Did you see the suits and the platform boots? (oh dear, oh boy, ...)`  
+​ `你看到那些套装和厚跟靴了么？`  
+​ `In Seventy-four on the Broadway tour`  
+​ `74年的百老汇巡演`  
+​ `We didn't much like dressing up no more`  
+​ `我们已经不太喜欢盛装打扮了`  
+​ `Don't wanna be hip - but thanks for a great trip.`  
+​ `不想穿得很潮-但还是要感谢那一场美好旅行`  
+​ `Do you remember the Saturday gigs?`  
+​ `你还记得周六那次演唱会么?`  
+​ `We do, we do`  
+​ `我们一直记得`  
+​ `Do you remember the Saturday gigs?`  
+​ `你还记得周六那次演唱会么?`  
+​ `We do, we do`  
+​ `我们一直记得`  
+​ `But now the kids pay a couple of quid`  
+​ `但现在小子们只要花几英镑`  
+​ `'Cause they need it just the same`  
+​ `反正他们只需要一成不变的东西`  
+​ `It's all a game`  
+​ `全都只是一场游戏`  
+​ `A grown-up game`  
+​ `教做人的游戏`  
+​ `But you got off on those Saturday gigs`  
+​ `你还记得周六那次演唱会么?`  
+​ `And we did, we did`  
+​ `我们一直记得`  
+​ `'Cause you got off on those Saturday gigs`  
+​ `你们曾为周六那次演唱会沉醉狂欢`  
+​ `And we did, we did`  
+​ `我们都很尽兴`  
+​ `And we got off on those Saturday gigs`  
+​ `我们曾为周六那次演唱会沉醉狂欢`  
+​ `And you did, you did`  
+​ `你们也都很尽兴`  
+​ `And we got off on those Saturday gigs`  
+​ `我们曾为周六那次演唱会沉醉狂欢`  
+​ `'Cause you did, you did`  
+​ `你们也都很尽兴`  
 
 [^1]: 奥地利作家Franz Kafka所作小说《变形记》内容。
 [^2]: The Stone Roses代表作，译作莎莉.辛纳蒙。

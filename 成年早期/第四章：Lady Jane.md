@@ -290,28 +290,28 @@
 
 ​ 我匆匆忙忙结束了对话。我坐在我的椅子上，两条腿翘到书桌上，重复听着治疗乐队的Sugar Girl[^24]。我很喜欢这歌欢快而漫长的前奏，尽管歌词是个很悲伤的故事，但是此刻我的心情，就像那鼓点一样，起起伏伏个不停。
 
-​ `Oh I wish I could find it funny`  
-​ `真希望我能明白你在笑什么`
-​ `You laughing like that`
-​ `你笑得那么开心`
-​ `But instead I change into a rage`
-​ `而我勃然大怒地`
-​ `Run around`
-​ `跑开了`
-​ `Without a face`
-​ `脸上没有一丝表情`
-​ `I wish I could find it funny`
-​ `真希望我还能笑得出来`
-​ `When you never come back`
-​ `在你头也不回地离开我之后`
-​ `But I don't suppose I'll ever know`
-​ `但我想我永远都不会知道`
-​ `The how to keep you`
-​ `怎样才能让你留下来`
-​ `Goodbye sugar girl`
-​ `再见了亲爱的姑娘`
-​ `Goodbye sugar girl`
-​ `再见了亲爱的姑娘`
+​ `Oh I wish I could find it funny`    
+​ `真希望我能明白你在笑什么`  
+​ `You laughing like that`  
+​ `你笑得那么开心`  
+​ `But instead I change into a rage`  
+​ `而我勃然大怒地`  
+​ `Run around`  
+​ `跑开了`  
+​ `Without a face`  
+​ `脸上没有一丝表情`  
+​ `I wish I could find it funny`  
+​ `真希望我还能笑得出来`  
+​ `When you never come back`  
+​ `在你头也不回地离开我之后`  
+​ `But I don't suppose I'll ever know`  
+​ `但我想我永远都不会知道`  
+​ `The how to keep you`  
+​ `怎样才能让你留下来`  
+​ `Goodbye sugar girl`  
+​ `再见了亲爱的姑娘`  
+​ `Goodbye sugar girl`  
+​ `再见了亲爱的姑娘`  
 
 ​ 三天后，简小姐依旧没把快件拆开。我把事情的进展告诉Jolie，她却说她已经劝过简小姐拆了。她也无能为力。
 
@@ -439,35 +439,35 @@
 
 ​ 我回到寝室不久，就收到简小姐的追问。她在电话那端情绪激动地逼问我是不是对她有所意图，她质问我是不是在玩弄暧昧。她又说她自己大学期间是不会谈恋爱的。我被她突然而来的表态弄得心烦意乱。我一度都想冲她爆粗口了。真的是，我还以为她一早就意识到了。她怎么可以这么蠢，蠢到不可救药。但我最后还是没有发脾气。我郁闷地告诉她，行了，就这样吧。我一个人坐在阳台的凳子上看着外面该死的路灯，重复听着冲击乐队[^30]的Should I Stay Or Should I Go[^31]。
 
-​ `Darlin' you got to let me know`
-​ `亲爱的，你得让我知道`
-​ `Should I stay or should I go?`
-​ `我应留下还是走？`
-​ `If you say that you are mine`
-​ `如果你说你是我的`
-​ `I'll be here 'til the end of time`
-​ `我会在这里，直到时间的尽头`
-​ `So you got to let me know`
-​ `所以你得让我知道`
-​ `Should I stay or should I go?`
-​ `我应留下还是走？`
-​ `It's always tease tease tease`
-​ `总是戏弄，戏弄，戏弄`
-​ `You're happy when I'm on my knees`
-​ `当我低落你却很开心`
-​ `One day is fine, next is black`
-​ `有时快乐，有时忧愁`
-​ `So if you want me off your back`
-​ `如果你想我退避`
-​ `Well come on and let me know`
-​ `那就来吧让我搞懂`
-​ `Should I Stay or should I go?`
-​ `我应留下还是走？`
-​ `Should I stay or should I go now?`
-​ `我现在应该留下还是走？`
-​ `Should I stay or should I go now?`
-​ `我现在应该留下还是走？`
-​ `...`
+​ `Darlin' you got to let me know`  
+​ `亲爱的，你得让我知道`  
+​ `Should I stay or should I go?`  
+​ `我应留下还是走？`  
+​ `If you say that you are mine`  
+​ `如果你说你是我的`  
+​ `I'll be here 'til the end of time`  
+​ `我会在这里，直到时间的尽头`  
+​ `So you got to let me know`  
+​ `所以你得让我知道`  
+​ `Should I stay or should I go?`  
+​ `我应留下还是走？`  
+​ `It's always tease tease tease`  
+​ `总是戏弄，戏弄，戏弄`  
+​ `You're happy when I'm on my knees`  
+​ `当我低落你却很开心`  
+​ `One day is fine, next is black`  
+​ `有时快乐，有时忧愁`  
+​ `So if you want me off your back`  
+​ `如果你想我退避`  
+​ `Well come on and let me know`  
+​ `那就来吧让我搞懂`  
+​ `Should I Stay or should I go?`  
+​ `我应留下还是走？`  
+​ `Should I stay or should I go now?`  
+​ `我现在应该留下还是走？`  
+​ `Should I stay or should I go now?`  
+​ `我现在应该留下还是走？`  
+​ `...`  
 
 
 ---
@@ -618,30 +618,30 @@
 
 ​ 我看着自己起起伏伏的胸膛，过了一会，我终于听见耳机里所传来的歌曲。
 
-​ `April come she will`[^37]
-​ `四月，她将到来`
-​ `When streams are ripe and swelled with rain`
-​ `溪流如同佳酿，雨水融入其中`
-​ `May she will stay`
-​ `五月，她将停歇`
-​ `Resting in my arms again`
-​ `于我怀中休憩`
-​ `June she'll change her tune`
-​ `六月，她将唱起新的歌谣`
-​ `In restless walks she'll prowl the night`
-​ `在无眠的夜里隐匿行踪`
-​ `July she will fly`
-​ `七月，她将翱翔`
-​ `And give no warning to her flight`
-​ `展翅高飞毫无顾虑`
-​ `August die she must`
-​ `八月，她必须消逝`
-​ `The autumn winds blow chilly and cold`
-​ `秋风飕飕寒冷刺骨`
-​ `September I remember`
-​ `九月，我将怀念`
-​ `A love once new has now grown old`
-​ `曾经鲜活如今苍白的爱情`
+​ `April come she will`[^37]  
+​ `四月，她将到来`  
+​ `When streams are ripe and swelled with rain`  
+​ `溪流如同佳酿，雨水融入其中`  
+​ `May she will stay`  
+​ `五月，她将停歇`  
+​ `Resting in my arms again`  
+​ `于我怀中休憩`  
+​ `June she'll change her tune`  
+​ `六月，她将唱起新的歌谣`  
+​ `In restless walks she'll prowl the night`  
+​ `在无眠的夜里隐匿行踪`  
+​ `July she will fly`  
+​ `七月，她将翱翔`  
+​ `And give no warning to her flight`  
+​ `展翅高飞毫无顾虑`  
+​ `August die she must`  
+​ `八月，她必须消逝`  
+​ `The autumn winds blow chilly and cold`  
+​ `秋风飕飕寒冷刺骨`  
+​ `September I remember`  
+​ `九月，我将怀念`  
+​ `A love once new has now grown old`  
+​ `曾经鲜活如今苍白的爱情`  
 
 [^1]: 湖南省城市。
 [^2]: 日本摇滚乐队。

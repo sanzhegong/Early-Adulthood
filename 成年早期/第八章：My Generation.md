@@ -85,40 +85,40 @@
 
 ​ 于是我把萨泽拉克喝完，告诉侍者麻烦保留我们的座位半小时。我们走到门口路边的斑马线旁。我掏出万宝路递给她，用打火机给她点了烟。她翘着腿坐在人行道前的石头路桩上，穿着露出雪白大腿的紧身蓝色短牛仔裤，微微抬着头开始吞云吐雾。我拿出手机接着播放低下丝绒的歌。我把双手插到黑色风衣的衣袋里，站在她后面，默然看向前方的马路。
 
-​ `Lisa says that it's allright`[^15]
-​ `丽萨说没有关系`
-​ `When she meets me alone at night`
-​ `当她在夜里和我独自见面`
-​ `Lisa says that she has a fun`
-​ `丽萨说她很尽兴`
-​ `And she'll do it with just about anyone`
-​ `她和任何人都会玩得尽兴`
-​ `Lisa says Lisa says Lisa says Lisa says`
-​ `丽萨说呀 丽萨说呀 丽萨说呀 丽萨说呀`
-​ `Lisa says that she's on the run`
-​ `丽萨说她总是四处奔波`
-​ `Looking for a special one`
-​ `寻找命中注定的人`
-​ `Lisa says that every time she makes his trip`
-​ `丽萨说她一旦踏上旅途`
-​ `She knows her heart will beat`
-​ `她知道她的心都会狂跳不止`
-​ `Lisa says Lisa says Lisa says Lisa says`
-​ `丽萨说呀 丽萨说呀 丽萨说呀 丽萨说呀`
-​ `Looking for a part and some action`
-​ `寻找失去的一块和遗忘的举动`
-​ `Going to make it feel okay`
-​ `最终达成目的的感觉真好呀`
-​ `But what do you find`
-​ `但你又在找什么呢`
-​ `When the time has come on now`
-​ `时间不知不觉地降临`
-​ `Look at it run`
-​ `看它转眼即逝`
-​ `Lisa says Lisa says Lisa says Lisa says`
-​ `丽萨说呀 丽萨说呀 丽萨说呀 丽萨说呀`
-​ `Lisa says Lisa says Lisa says`
-​ `丽萨说呀 丽萨说呀 丽萨说呀`
+​ `Lisa says that it's allright`[^15]  
+​ `丽萨说没有关系`  
+​ `When she meets me alone at night`  
+​ `当她在夜里和我独自见面`  
+​ `Lisa says that she has a fun`  
+​ `丽萨说她很尽兴`  
+​ `And she'll do it with just about anyone`  
+​ `她和任何人都会玩得尽兴`  
+​ `Lisa says Lisa says Lisa says Lisa says`  
+​ `丽萨说呀 丽萨说呀 丽萨说呀 丽萨说呀`  
+​ `Lisa says that she's on the run`  
+​ `丽萨说她总是四处奔波`  
+​ `Looking for a special one`  
+​ `寻找命中注定的人`  
+​ `Lisa says that every time she makes his trip`  
+​ `丽萨说她一旦踏上旅途`  
+​ `She knows her heart will beat`  
+​ `她知道她的心都会狂跳不止`  
+​ `Lisa says Lisa says Lisa says Lisa says`  
+​ `丽萨说呀 丽萨说呀 丽萨说呀 丽萨说呀`  
+​ `Looking for a part and some action`  
+​ `寻找失去的一块和遗忘的举动`  
+​ `Going to make it feel okay`  
+​ `最终达成目的的感觉真好呀`  
+​ `But what do you find`  
+​ `但你又在找什么呢`  
+​ `When the time has come on now`  
+​ `时间不知不觉地降临`  
+​ `Look at it run`  
+​ `看它转眼即逝`  
+​ `Lisa says Lisa says Lisa says Lisa says`  
+​ `丽萨说呀 丽萨说呀 丽萨说呀 丽萨说呀`  
+​ `Lisa says Lisa says Lisa says`  
+​ `丽萨说呀 丽萨说呀 丽萨说呀`  
 
 ​ “你不坐坐吗？” 她率先开口了，“虽然有些凉屁股。”
 
@@ -362,87 +362,87 @@
 
 ​ 我的内心对我们这代人，我们这些疲倦的家伙，依旧充满了悲观。我想起从小到大走过的那些路。我想起Hale载着我跑过的盘山公路，在杭州河涌旁和Sally一起走过的小路，和简小姐一起走过的堆满银杏落叶的校道，我和Jin凌晨时分也曾经从那经过。我想起领着抑郁症报告冒着小雨回去的下午，那条湿滑的路上两侧种满了榕树。不久前的平安夜，我和Ken正走过前面的那座天桥，他趴着栏杆上，看着下面的车流和我咒骂这个他妈的社会，他说要对着他们手冲。我想起和Whisky分别的那个夜晚，我本想走路回去但未能如愿。无论如何，我现在都走在路上了，即使现在那些家伙现在都不在我身边。我独自走在凌晨两点的马路上。我听了红辣椒乐队[^32]的Snow[^33]和我的化学罗曼史[^34]的Desolation Row[^35]。我在Bon Jovi[^36]的It's My Life[^37]大步向前。我的头上是新年出生的明月，我有时候也会停下来，看着那轮明月，幻想隔着浩瀚的天空，那里会不会存在生命，存在一个更加美好的世界，就像大卫鲍伊期待的那样。我向着明月伸出我的胳膊。我相信有一天Turing会从天而降，再次停留在我的手指上。我又快步走了，我知道那些东西，那些一直在尾随我的东西，此时此刻也在追逐着我，就在我的背后，我背后的阴影里，那深邃而诡异的天空里，于是我听着大卫鲍伊的歌，加快脚步，把他们甩在身后。
 
-​ `It's a god-awful small affair`[^38]
-​ `这事虽小，却极其恐怖`
-​ `To the girl with the mousy hair`
-​ `对于那个发如鼠毛的女孩来说`
-​ `But her mummy is yelling "No"`
-​ `但她老妈却喊着“不行”`
-​ `And her daddy has told her to go`
-​ `而她老爸让她滚`
-​ `But her friend is nowhere to be seen`
-​ `但是她的朋友此刻都不在视线内`
-​ `Now she walks through her sunken dream`
-​ `如今她只好沉浸在梦幻中`
-​ `To the seat with the clearest view`
-​ `走到那个视线最好的座位上`
-​ `And she's hooked to the silver screen`
-​ `她被银屏迷住`
-​ `But the film is a saddening bore`
-​ `可是电影煽情得无聊`
-​ `For she's lived it ten times or more`
-​ `因为电影里的生活她自己都经历过上十次`
-​ `She could spit in the eyes of fools`
-​ `她能看透傻瓜的眼神`
-​ `As they ask her to focus on`
-​ `当他们要她注意看：`
-​ `Sailors fighting in the dance hall`
-​ `水手们在舞厅里群殴`
-​ `Oh man! look at those cavemen go`
-​ `哦，老弟！快看那些洞穴人啊`
-​ `It's the freakiest show`
-​ `这是最最怪异的演出`
-​ `Take a look at the lawman`
-​ `看一看那警察`
-​ `Beating up the wrong guy`
-​ `他打错了人`
-​ `Oh man! Wonder if he'll ever know`
-​ `哦，老弟！很诧异他到底是否知道`
-​ `He's in the best selling show`
-​ `他身在这最卖座的一场演出中`
-​ `Is there life on Mars?`
-​ `火星上是否有生命？`
+​ `It's a god-awful small affair`[^38]  
+​ `这事虽小，却极其恐怖`  
+​ `To the girl with the mousy hair`  
+​ `对于那个发如鼠毛的女孩来说`  
+​ `But her mummy is yelling "No"`  
+​ `但她老妈却喊着“不行”`  
+​ `And her daddy has told her to go`  
+​ `而她老爸让她滚`  
+​ `But her friend is nowhere to be seen`  
+​ `但是她的朋友此刻都不在视线内`  
+​ `Now she walks through her sunken dream`  
+​ `如今她只好沉浸在梦幻中`  
+​ `To the seat with the clearest view`  
+​ `走到那个视线最好的座位上`  
+​ `And she's hooked to the silver screen`  
+​ `她被银屏迷住`  
+​ `But the film is a saddening bore`  
+​ `可是电影煽情得无聊`  
+​ `For she's lived it ten times or more`  
+​ `因为电影里的生活她自己都经历过上十次`  
+​ `She could spit in the eyes of fools`  
+​ `她能看透傻瓜的眼神`  
+​ `As they ask her to focus on`  
+​ `当他们要她注意看：`  
+​ `Sailors fighting in the dance hall`  
+​ `水手们在舞厅里群殴`  
+​ `Oh man! look at those cavemen go`  
+​ `哦，老弟！快看那些洞穴人啊`  
+​ `It's the freakiest show`  
+​ `这是最最怪异的演出`  
+​ `Take a look at the lawman`  
+​ `看一看那警察`  
+​ `Beating up the wrong guy`  
+​ `他打错了人`  
+​ `Oh man! Wonder if he'll ever know`  
+​ `哦，老弟！很诧异他到底是否知道`  
+​ `He's in the best selling show`  
+​ `他身在这最卖座的一场演出中`  
+​ `Is there life on Mars?`  
+​ `火星上是否有生命？`  
 
-​ `It's on America's tortured brow`
-​ `美国佬皱眉，百思不得其解`
-​ `That Mickey Mouse has grown up a cow`
-​ `米老鼠已经成为了棵摇钱树`
-​ `Now the workers have struck for fame`
-​ `工人们正在为名声罢工`
-​ `'Cause Lennon's on sale again`
-​ `因为列侬又在打折销售`
-​ `See the mice in their million hordes`
-​ `看着那些数以百万计的耗子`
-​ `From Ibiza to the Norfolk broads`
-​ `从伊比沙岛到诺福克河`
-​ `Rule Britannia is out of bounds`
-​ `不列颠尼亚军规已经超出国界`
-​ `To my mother, my dog, and clowns`
-​ `对于我老妈，我的狗还有小丑们`
-​ `But the film is a saddening bore`
-​ `可是电影逐渐陷入沉闷`
-​ `'Cause I wrote it ten times or more`
-​ `因为我自己都写过上十遍了`
-​ `It's about to be writ again`
-​ `现在又要开始重来`
-​ `As I ask you to focus on`
-​ `当我要你快去注意：`
-​ `Sailors fighting in the dance hall`
-​ `水手们在舞厅里群殴`
-​ `Oh man! Look at those cavemen go`
-​ `哦，老弟！快看那些洞穴人`
-​ `It's the freakiest show`
-​ `这是最最怪异的演出`
-​ `Take a look at the lawman`
-​ `瞧那个警察`
-​ `Beating up the wrong guy`
-​ `他打错了人`
-​ `Oh man! Wonder if he'll ever know`
-​ `哦，老弟！真怀疑他是否知道`
-​ `He's in the best selling show`
-​ `他正身处这最卖座的一场演出`
-​ `Is there life on Mars?`
-​ `火星上是否有生命？`
+​ `It's on America's tortured brow`  
+​ `美国佬皱眉，百思不得其解`  
+​ `That Mickey Mouse has grown up a cow`  
+​ `米老鼠已经成为了棵摇钱树`  
+​ `Now the workers have struck for fame`  
+​ `工人们正在为名声罢工`  
+​ `'Cause Lennon's on sale again`  
+​ `因为列侬又在打折销售`  
+​ `See the mice in their million hordes`  
+​ `看着那些数以百万计的耗子`  
+​ `From Ibiza to the Norfolk broads`  
+​ `从伊比沙岛到诺福克河`  
+​ `Rule Britannia is out of bounds`  
+​ `不列颠尼亚军规已经超出国界`  
+​ `To my mother, my dog, and clowns`  
+​ `对于我老妈，我的狗还有小丑们`  
+​ `But the film is a saddening bore`  
+​ `可是电影逐渐陷入沉闷`  
+​ `'Cause I wrote it ten times or more`  
+​ `因为我自己都写过上十遍了`  
+​ `It's about to be writ again`  
+​ `现在又要开始重来`  
+​ `As I ask you to focus on`  
+​ `当我要你快去注意：`  
+​ `Sailors fighting in the dance hall`  
+​ `水手们在舞厅里群殴`  
+​ `Oh man! Look at those cavemen go`  
+​ `哦，老弟！快看那些洞穴人`  
+​ `It's the freakiest show`  
+​ `这是最最怪异的演出`  
+​ `Take a look at the lawman`  
+​ `瞧那个警察`  
+​ `Beating up the wrong guy`  
+​ `他打错了人`  
+​ `Oh man! Wonder if he'll ever know`  
+​ `哦，老弟！真怀疑他是否知道`  
+​ `He's in the best selling show`  
+​ `他正身处这最卖座的一场演出`  
+​ `Is there life on Mars?`  
+​ `火星上是否有生命？`  
 
 [^1]: Walt Whitman。美国诗人。
 [^2]: Song of the Open Road。Walt Whitman代表作。
